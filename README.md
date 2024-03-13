@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JEMenesesSo
 - 👀 I’m interested in Learn coding
 - 🌱 I’m currently learning the basics
-- 💞️ I’m looking to collaborate on ease projects
+- 💞️ I’m looking to collaborate on easy projects
 - 📫 How to reach me here
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I bake great pizza (pizza emoji)
